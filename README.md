@@ -1,1 +1,1 @@
-ended by laws, adding more details, current is enough
+ended by laws in US
