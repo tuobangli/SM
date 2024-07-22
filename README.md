@@ -1,2 +1,2 @@
-ended by laws in Israel
+ended by laws in US
 
